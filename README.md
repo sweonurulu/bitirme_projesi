@@ -1,0 +1,2 @@
+# bitirme_projesi
+ÇOMÜ BİTİRME PROJESİ 200401118 MUHAMMED ONUR ULU
